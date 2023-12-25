@@ -1,2 +1,0 @@
-# clevertec
-# clevertec
